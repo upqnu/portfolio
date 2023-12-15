@@ -1,4 +1,4 @@
-# :trophy:	 joonyoung's PORTFOLIO  
+![image](https://github.com/upqnu/portfolio/assets/101033614/33106eaa-45cb-4457-8142-a6cf02a16813)
 <br>
   
 ## :atom: Intro
